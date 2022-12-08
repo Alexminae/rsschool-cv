@@ -1,1 +1,1 @@
-# https://Alexminae.github.io/
+#https://Alexminae.github.io/rsschool-cv/
